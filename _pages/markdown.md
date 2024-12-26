@@ -16,8 +16,4 @@ Pittsburgh, USA (Open to Relocation)
 <br />
 namancho@andrew.cmu.edu
 <br /> 
-<br />
-**Contact**
-<br />
-USA : +1 412 224 3481
 
